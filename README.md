@@ -28,10 +28,10 @@ The group members were:
 
 The topics assigned to the group were:
 
-Reading Topic - Distribution of Movies in Bollywood in Last Five Years
+a. Reading Topic - Distribution of Movies in Bollywood in Last Five Years
 
-Presentation - Social Barriers (India)
+b. Presentation - Social Barriers (India)
 
-GD - Films Are Corrupting Indian Youth
+c. GD - Films Are Corrupting Indian Youth
 
 The Book Review was done individually by every student enrolled in the course.
